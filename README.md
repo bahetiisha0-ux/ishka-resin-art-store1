@@ -1,1 +1,0 @@
-# ishka-resin-art-store1
